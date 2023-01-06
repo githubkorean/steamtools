@@ -1,5 +1,5 @@
 |709|https://blog.naver.com/mickey90427/222662406615|<p>
-|33180|https://kugistory.tistory.com/87|<p>
+|33180|https://freegamedownload.tistory.com/85|<p>
 |34270|https://steamcommunity.com/sharedfiles/filedetails/?id=677086610|<p>
 |218640|https://lastkingdom.tistory.com/213|<p>
 |238320|https://freegamedownload.tistory.com/67|<p>
