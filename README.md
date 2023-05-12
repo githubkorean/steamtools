@@ -1,7 +1,7 @@
 |709|https://blog.naver.com/mickey90427/222662406615|<p>
 |33180|https://kugistory.tistory.com/87|<p>
 |34270|https://steamcommunity.com/sharedfiles/filedetails/?id=677086610|<p>
-|205100|https://docs.google.com/uc?id=1sBCt1h6nTMa4RsZFLLUsMtgiFrjEVlIR|<p>
+|205100|https://docs.google.com/uc?id=1AczMK14Ul60DhkQeFiyRGzluN-UTn_3P|<p>
 |218640|https://lastkingdom.tistory.com/213|<p>
 |225840|https://steamcommunity.com/sharedfiles/filedetails/?id=679281001|<p>
 |238320|https://freegamedownload.tistory.com/67|<p>
